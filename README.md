@@ -1,6 +1,6 @@
 ## 𝘈𝘣𝘰𝘶𝘵 𝘶𝘴 .ᐟ.ᐟ
 
-<img width="672" height="140" alt="Image" src="https://github.com/user-attachments/assets/e0c6a2e2-55d1-453d-ae74-5869f7fcee3e" />
+<img width="456" height="140" alt="Image" src="https://github.com/user-attachments/assets/e0c6a2e2-55d1-453d-ae74-5869f7fcee3e" />
 
 **aoyagi-toya/aoyagi-toya** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
