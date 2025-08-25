@@ -1,6 +1,7 @@
 ## 𝘈𝘣𝘰𝘶𝘵 𝘶𝘴 .ᐟ.ᐟ
 
-<!--[iamge](Untitled71_20250722012742.png)
+<Untitled71_20250722012742.png>
+
 **aoyagi-toya/aoyagi-toya** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
