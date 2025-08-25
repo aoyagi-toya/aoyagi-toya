@@ -31,4 +31,4 @@
 ₊　 　　⌓⌓ 　   　  ⚤⠀　  　﹕　　 ♡
 
 
-![Image](https://github.com/user-attachments/assets/b6796c53-2b05-4cdd-9ad4-407874250227.gif)
+![hippo](https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif)
