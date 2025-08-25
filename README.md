@@ -30,4 +30,3 @@
   
 ₊　 　　⌓⌓ 　   　  ⚤⠀　  　﹕　　 ♡
 
-![toya](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExcWtqYjRwdWVkN3MwY3NpbDNneDh1ZTd6ODZucDl1bjRnZ25kZDRseiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/YLPtRKY1IGL6R76AMj/giphy.gif)
