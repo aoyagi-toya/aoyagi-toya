@@ -30,4 +30,6 @@
   
 ₊　 　　⌓⌓ 　   　  ⚤⠀　  　﹕　　 ♡
 
-![Image](https://github.com/user-attachments/assets/d65a578c-7b64-475b-9751-7309d246ee4e)
+<img width="257" height="248" alt="Untitled design (3)" src="https://github.com/user-attachments/assets/20b283d3-d272-4557-a247-e2edda0b90b6" />
+
+
