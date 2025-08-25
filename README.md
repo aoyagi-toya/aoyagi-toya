@@ -30,6 +30,7 @@
   
 ₊　 　　⌓⌓ 　   　  ⚤⠀　  　﹕　　 ♡
 
-<img width="257" height="248" alt="Untitled design (3)" src="https://github.com/user-attachments/assets/20b283d3-d272-4557-a247-e2edda0b90b6" />
+<img width="993" height="566" alt="My_Shackles_Are_The_Key_T" src="https://github.com/user-attachments/assets/8e4b9979-5d36-4874-822f-1b3e14233b7a" />
+
 
 
