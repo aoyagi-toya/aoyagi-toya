@@ -30,3 +30,4 @@
   
 ₊　 　　⌓⌓ 　   　  ⚤⠀　  　﹕　　 ♡
 
+![Image](https://github.com/user-attachments/assets/d65a578c-7b64-475b-9751-7309d246ee4e)
