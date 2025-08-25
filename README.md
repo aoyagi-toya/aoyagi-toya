@@ -32,21 +32,3 @@
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-This is a wip cuz im lazy
